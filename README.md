@@ -1,0 +1,1 @@
+# hakiado-trip
